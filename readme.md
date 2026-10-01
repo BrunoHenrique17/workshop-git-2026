@@ -1,4 +1,3 @@
 ### Teste 
 1- fazendo curso
-2- tentando fazer sozinho o bgl de programador sou gay
-mjnhunjkouhbnljhn
+2- editando o arquivo readme.md para tirar minha mae da favela e por na invasao eeeee
